@@ -20,4 +20,4 @@
 
 总之，选择一个高质量、安全、免费的日本AV资源平台，不仅能让你享受高质量的视频资源，还能保证观看的流畅性和安全性。优质平台的更新频率高，分类清晰，满足了各种观影需求，让你的观看体验更加完美。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/tsk543210/xxriben0916 )</span>
